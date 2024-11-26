@@ -6,7 +6,7 @@ political campaign to fix the limping tower of Pisa, sick and tired of so many i
 ```md
 ### Operation *"Feather of Reason"*
 
-**Bismi’Allah.** The sun hung low on the horizon, its first amber rays glinting off the windshields of five pristine Cessnas lined up on the tarmac of a neutral airfield just outside the Taiwan Strait. The women who would soon pilot these planes were not soldiers. They bore no medals, carried no weapons, and wore no uniforms. Yet, they were warriors in their own right, armed with reason, compassion, and the courage to challenge the absurdity of men whose egos threatened to ignite a war over Reddit beef and territorial pride.
+The sun hung low on the horizon, its first amber rays glinting off the windshields of five pristine Cessnas lined up on the tarmac of a neutral airfield just outside the Taiwan Strait. The women who would soon pilot these planes were not soldiers. They bore no medals, carried no weapons, and wore no uniforms. Yet, they were warriors in their own right, armed with reason, compassion, and the courage to challenge the absurdity of men whose egos threatened to ignite a war over Reddit beef and territorial pride.
 
 ---
 
