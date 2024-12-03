@@ -143,5 +143,9 @@ The skies quieted for a moment, the two jets hovering in mutual retreat. Wei cou
 
 Hours later, after the sun had set and the jets had returned to their bases, the skies over the Taiwan Strait seemed impossibly empty. The two pilots sat in separate debriefing rooms, answering questions with careful lies. They were not naive; they knew they would never be allowed to meet again. The war would continue, the world would move forward, and this moment would disappear into classified reports and forgotten footnotes.
 
+
+
 But they had found each other in the vastness of the sky, and that was enough.
 ```
+
+
